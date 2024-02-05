@@ -1,4 +1,4 @@
-# About me
+# About Som aka 'The Solution Architect'
 An accomplished IT Professional having more than a decade of experience in IT systems designing, architecting, and establishing technology best practices for Enterprise solutions. 
 
 Establishing and deepening positive client relationships within Financial Services, developing new business, developing consulting associates, and leading consulting teams in service delivery.
